@@ -1,4 +1,4 @@
-Tasnia Alam
+Tasnia Alam,
 PhD Candidate, School of Communication, 
 University of Miami
 
